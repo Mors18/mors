@@ -1,2 +1,3 @@
 # mors
-Fbslur
+Cracks by rian. R 😎
+Free no buy 
